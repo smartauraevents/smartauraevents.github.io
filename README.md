@@ -39,4 +39,4 @@ Ready to make your next event remarkable? We are based in the local region and r
 *✨ Every Great Event Begins with a Remarkable Experience ✨*
 
 
-Make Events Memorable 💖🥳
+Make Events Memorable. 💖🥳
